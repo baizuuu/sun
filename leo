@@ -1,3 +1,3 @@
 loki movie
-next venkiii mov
-award ungalukku thaaaaa
+vijay track turns politics
+arasiayalluku vaa beoooooo
